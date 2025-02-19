@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **moinalik910@gmail.com**
 
-- 📄 Know about my experiences [https://gist.github.com/MoinAliiKhan/61ad033f3bfda5fb52ff22fdf3aae950]([https://gist.github.com/MoinAliiKhan/61ad033f3bfda5fb52ff22fdf3aae950](https://drive.google.com/file/d/1TkD0p1CFAyqhZ8z9qCOpHZvfto0-dJ8z/view?usp=drivesdk ))
+- 📄 Know about my experiences [https://gist.github.com/MoinAliiKhan/61ad033f3bfda5fb52ff22fdf3aae950](https://drive.google.com/file/d/1TkD0p1CFAyqhZ8z9qCOpHZvfto0-dJ8z/view?usp=drivesdk )
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
